@@ -1,1 +1,1 @@
-O curso é ótimo! Estou aprendendo muitas coisas!
+O curso é ótimo! Estou aprendendo muitas coisas!!
